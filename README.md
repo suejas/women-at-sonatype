@@ -72,5 +72,5 @@
 
 #### Sue Jasmin
 - [LinkedIn](https://linkedin.com/in/susanjasmin/)
-- Topics of Interest - Literacy initiatives, hiring, supporting and promoting women in tech, community belonging inclusion and diversity at work and in the world, girls and womens empowerment through sports - see https://freetorun.org/ and https://www.girlsontherun.org/
+- Topics of Interest - Literacy initiatives; hiring, supporting and promoting women in tech; community, belonging, inclusion and diversity at work and in the world;  and girls and womens empowerment through sports with organizations such as [Free to Run](https://freetorun.org/) and [Girls on the Run](https://www.girlsontherun.org/). 
 - Location - VA, USA
